@@ -1,0 +1,1 @@
+# Application-of-lean-six-sigma-in-healthy-fast-food-chain
